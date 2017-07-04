@@ -2,4 +2,4 @@
 Otakus make the Earth
 
 Hello.
-I believe future techs are change the world to better derectrion.
+I believe future techs are change the world to better directrion.
